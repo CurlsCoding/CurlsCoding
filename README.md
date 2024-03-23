@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @reidmetoyer
-- 👀 I’m interested in video games, music, and peoples' embracing of their natural hair!
+- 👀 I’m interested in video games music, and obviously, coding!
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on pretty much anything!
 - 📫 How to reach me: reid.metoyer@gmail.com
